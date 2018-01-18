@@ -1,2 +1,0 @@
-# GeorgeKelly
-George Kelly, philosophy
